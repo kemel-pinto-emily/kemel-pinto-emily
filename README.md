@@ -1,9 +1,11 @@
 ## se tu quer paz eu quero em dobro
 SAUDACOES SENHORES
+
 prof me obrigou     a           colocar          essa       mensagem
+
 sos sossocorro n quero   fazer essa tarefa
 👽
-![https://www.google.com/url?sa=i&url=https%3A%2F%2Fpt.quizur.com%2Ftrivia%2Fo-quanto-voce-conchece-sobre-shitpost-ROB5&psig=AOvVaw34kyF2fW8qLBgTwccENYWf&ust=1726660159461000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCKjVnsL0yYgDFQAAAAAdAAAAABAR]
+![](https://img.quizur.com/f/img63b22eafdc93b0.18938207.jpg?lastEdited=1672621756)
 PRIMA DA CAMILA LOURES
 JA TO MOLHADA PARECE QUE CHUVA E É LUTADOR QUE PARECE BB QUEM  PIH? MINHA BCT
 PROXIMO CORTE DE CABELO VAI SER NO PESCOÇO.
