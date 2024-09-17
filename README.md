@@ -1,4 +1,4 @@
-## Hi there 👋
+## se tu quer paz eu quero em dobro
 
 <!--
 **kemel-pinto-emily/kemel-pinto-emily** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
